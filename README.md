@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Nick Xing
+- Currently studying computer science 💻 at Vanderbilt University 🇺🇸
